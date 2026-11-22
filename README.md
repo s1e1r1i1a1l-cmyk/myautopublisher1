@@ -1,0 +1,2 @@
+# myautopublisher1
+tiktok-developers-site-verification=6acm0DSxyrAdK1H3Med1s9EAvTU1kxKl
